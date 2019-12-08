@@ -1,1 +1,0 @@
-# potdelka.github.io
